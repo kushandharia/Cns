@@ -1,1 +1,1 @@
-https://regal-donut-9e690a.netlify.app
+https://cns-ala1-kush.netlify.app/
